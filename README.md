@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dan1ah
+- 👀 I’m interested in virtual production
+- 🌱 I’m currently learning UE
+- 💞️ I’m looking to collaborate on any cool enrironment builds you've got going on.
+- 📫 How to reach me: discord @daniah#3904
